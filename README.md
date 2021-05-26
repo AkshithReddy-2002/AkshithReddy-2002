@@ -1,0 +1,1 @@
+An aspiring student with a desire to explore and diversify in the field of computer science.I am fascinated to learn and expertise in the field of AI,ML,Web Development and Coding.An individual with determination and perseverance towards my work.Having ability to work under pressure and a team player with good communication skills.
